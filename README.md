@@ -13,3 +13,6 @@ We invite you to explore our website and experience our unique approach to art a
 The Batman Studio was no longer just an art studio – it was a movement, a revolution in creativity and innovation that would change the way we saw the world, and the way we created in it.
 
 Thank you for visiting The Batman Studio. We look forward to sharing our vision with you.
+
+
+
